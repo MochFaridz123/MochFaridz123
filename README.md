@@ -37,7 +37,7 @@ Saya suka bereksperimen dengan **elektronika, pemrograman, dan proyek DIY** — 
 ---
 
 ## 🌐 Hubungi Saya
-- 💬 Instagram: [@usernamekamu](https://instagram.com/@farid_project)
+- 💬 Instagram: [@farid_project](https://instagram.com/@farid_project)
 - 💌 Email: faridz@chatgpt.ai
 - 🧩 GitHub: [FaridzAzmiAziz](https://github.com/FaridzAzmiAziz)
 
