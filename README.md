@@ -37,8 +37,8 @@ Saya suka bereksperimen dengan **elektronika, pemrograman, dan proyek DIY** — 
 ---
 
 ## 🌐 Hubungi Saya
-- 💬 Instagram: [@usernamekamu](https://instagram.com/usernamekamu)
-- 💌 Email: yourname@email.com
+- 💬 Instagram: [@usernamekamu](https://instagram.com/wildanelgato2)
+- 💌 Email: faridz@chatgpt.ai
 - 🧩 GitHub: [FaridzAzmiAziz](https://github.com/FaridzAzmiAziz)
 
 ---
